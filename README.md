@@ -1,3 +1,3 @@
 ### HASNAE BOUHMADY- MY PERSONAL PORTFOLIO WEBSITE (IN PROGRESS)
 
-LINK TO WEBSITE: https://hasnaebouhmady.000webhostapp.com/
+THE LINK OF THE WEBSITE: https://hasnaebouhmady.000webhostapp.com/
